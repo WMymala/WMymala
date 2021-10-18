@@ -1,4 +1,4 @@
-👋 Hi, I’m Walter Mymala(WWMymala)!
+👋 Hi, I’m Walter Mymala(WMymala)! I transferred my repositories from my school email to my main email!
 Current UC Davis student(graduating Spring 2022)
 Managerial Economics Major and Statistics Minor
 Member of the Moneyball Club at UC Davis
